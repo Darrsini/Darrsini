@@ -9,7 +9,7 @@
 
 - 📫 How to reach me *ddharshini4292003@gmail.com*
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1T9B1cg8pDCCMPFu2lOGJDLvwv28FwZ0H/view?usp=share_link](https://drive.google.com/file/d/1T9B1cg8pDCCMPFu2lOGJDLvwv28FwZ0H/view?usp=share_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1T9B1cg8pDCCMPFu2lOGJDLvwv28FwZ0H/view?usp=share_link)
 
 - ⚡ Fun fact *Ever seen a detective disguised as a sponge?
 - 🕵‍♂ That's me—attention to detail so fine-tuned, I could probably spot Phil Dunphy from 'Modern Family' in a sea of hilarious family chaos 🏠👀!
