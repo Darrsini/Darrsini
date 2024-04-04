@@ -3,15 +3,19 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=darrsini&label=Profile%20views&color=0e75b6&style=flat" alt="darrsini" /> </p>
 
-- 🌱 I’m currently learning **Java,React & Product Management**
+- 🌱 I’m currently learning *Java,React & Product Management*
 
-- 💬 Ask me about **Figma**
+- 💬 Ask me about *Figma*
 
-- 📫 How to reach me **ddharshini4292003@gmail.com**
+- 📫 How to reach me *ddharshini4292003@gmail.com*
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1T9B1cg8pDCCMPFu2lOGJDLvwv28FwZ0H/view?usp=share_link](https://drive.google.com/file/d/1T9B1cg8pDCCMPFu2lOGJDLvwv28FwZ0H/view?usp=share_link)
 
-- ⚡ Fun fact **Ever seen a detective disguised as a sponge? 🕵️‍♂️ That's me—attention to detail so fine-tuned, I could probably spot Phil Dunphy from 'Modern Family' in a sea of hilarious family chaos 🏠👀!🧐 Quick learner? More like the Flash of absorbing knowledge—blink and I've already mastered it! ⚡ And when it comes to observation, I'm like a hawk with laser vision, spotting details others wouldn't even notice if they were wearing magnifying glasses! 🔍 So, if you ever need someone to crack codes, learn languages overnight, or find that missing sock in the laundry, I'm your undercover superwoman! 💥🦸‍♂️**
+- ⚡ Fun fact *Ever seen a detective disguised as a sponge?
+- 🕵‍♂ That's me—attention to detail so fine-tuned, I could probably spot Phil Dunphy from 'Modern Family' in a sea of hilarious family chaos 🏠👀!
+- 🧐 Quick learner? More like the Flash of absorbing knowledge—blink and I've already mastered it!
+- ⚡ And when it comes to observation, I'm like a hawk with laser vision, spotting details others wouldn't even notice if they were wearing magnifying glasses!
+- 🔍 So, if you ever need someone to crack codes, learn languages overnight, or find that missing sock in the laundry, I'm your undercover superwoman! 💥🦸‍♂*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
